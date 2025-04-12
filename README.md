@@ -1,0 +1,1 @@
+# TrendSage_Al_Data_Analyst_Project
